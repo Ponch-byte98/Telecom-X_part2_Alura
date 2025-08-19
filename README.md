@@ -1,0 +1,1 @@
+# Telecom-X_partr_Alura
